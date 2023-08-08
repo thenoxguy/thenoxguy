@@ -1,4 +1,4 @@
-3rd year, B.Tech Electrical Engineering
+last year, B.Tech Electrical Engineering
 Jadavpur University, India
 
 
